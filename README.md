@@ -19,7 +19,7 @@ to run this tool in termux  is by
 follow my ig @abkb_memer
   subscribe my youtube @abkb_tools
 
-supportmebybitcoin address 
+support me by bitcoin address 
 bc1quesx5k8cq566lcehma06mgxrj3dr5xe2j0zqt7
 
 or dm me insta for any support @abkb_memer
